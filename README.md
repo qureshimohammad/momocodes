@@ -1,2 +1,2 @@
 # momocodes
-toriyaezu nantoka, to zembu 
+toriaezu nanika, to zembu 
